@@ -1,2 +1,2 @@
 # EzPing
-L Ziblacking
+This is ass and useless. Scam down
